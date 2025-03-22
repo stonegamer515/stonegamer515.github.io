@@ -1,5 +1,5 @@
-Here you can say lots of fun things about your site.
+A blog about the a college student's musing on the twists and turns of life.
 
-Maybe say a some things about yourself.
+This is mostly intended for personal use rather than widespread reach.
 
-Or maybe what you plan to blog about.
+
